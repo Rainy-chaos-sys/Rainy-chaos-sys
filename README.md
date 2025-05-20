@@ -18,7 +18,7 @@ Taken?: OML YES YES YES YES YES!! ILYSM BUG!! YOU BETTER FOLLOW MY BF OR ELSE I 
 
 Problemtic?: Yes, me and sys are problemtic, and a bit chaotic, sorry guys-
 
-I am transgender, demiboy, gay, and asexual!
+I am transgender, demiboy, gay, and aromatic or asexual(still trying to figure this part out)!
 
 thanks for reading!!!
 
