@@ -12,7 +12,7 @@ age: Heh you don't get to know <3
 
 height: 5 something- idk dude-
 
-do i support the lgbtq, proshipping, autism, DID, + more? Yes!! I do support proshipping because i am somewhat one myself, sorry antis we probably would get along depending on what ships but no hating on me please.
+do i support the lgbtq and proshipping? Yes!! I do support proshipping because i am somewhat one myself.
 
 Taken?: OML YES YES YES YES YES!! ILYSM BUG!! YOU BETTER FOLLOW MY BF OR ELSE I WILL HUNT YOU DOWN!
 
