@@ -1,6 +1,6 @@
+![IMG_4724](https://github.com/user-attachments/assets/34e8a25f-f1f7-47a3-8d49-5b228494332a)
 ![IMG_4538](https://github.com/user-attachments/assets/a4fb7b48-53c7-4493-a8a3-5693e8dd14fe)
 ![IMG_4540](https://github.com/user-attachments/assets/e6416848-bf4c-4ffd-8488-ea8944f4b33e)
-![IMG_4724](https://github.com/user-attachments/assets/34e8a25f-f1f7-47a3-8d49-5b228494332a)
 
 
 HAIII THIS IS BASIC INFO ABOUT ME THE HOST OF MY SYS!
@@ -20,7 +20,7 @@ Problemtic?: Yes, me and sys are problemtic, and a bit chaotic, sorry guys-
 I am transgender, demiboy, gay, and aromatic or asexual(still trying to figure this part out)!
 
 thanks for reading!!!
-![IMG_4725](https://github.com/user-attachments/assets/decae111-c5cc-4822-a01f-84a557783929)
+
 
 ![IMG_4541](https://github.com/user-attachments/assets/cf1038ee-d943-4bb1-a4f9-628b763d7652)
 
