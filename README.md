@@ -1,6 +1,6 @@
 ![IMG_4724](https://github.com/user-attachments/assets/34e8a25f-f1f7-47a3-8d49-5b228494332a)
-![IMG_4538](https://github.com/user-attachments/assets/a4fb7b48-53c7-4493-a8a3-5693e8dd14fe)
-![IMG_4540](https://github.com/user-attachments/assets/e6416848-bf4c-4ffd-8488-ea8944f4b33e)
+![IMG_4538](https://github.com/user-attachments/assets/268c33d3-e6f9-43f4-a859-1e4be1c93f9d)
+![IMG_4540](https://github.com/user-attachments/assets/31acea8a-f0ed-4ec8-8da1-95a34107b125)
 
 
 HAIII THIS IS BASIC INFO ABOUT ME THE HOST OF MY SYS!
@@ -22,15 +22,22 @@ I am transgender, demiboy, gay, and aromatic or asexual(still trying to figure t
 thanks for reading!!!
 
 
-![IMG_4541](https://github.com/user-attachments/assets/cf1038ee-d943-4bb1-a4f9-628b763d7652)
-
-![IMG_4537](https://github.com/user-attachments/assets/b1572e16-b387-4afd-8d26-7b63a9a347bf)
-
-TW: GLITCHING!!!!
+![IMG_4539](https://github.com/user-attachments/assets/d3e98525-f430-4b94-bbc5-60fb8694cc50)
+![IMG_4537](https://github.com/user-attachments/assets/7a108140-d06f-42fc-903e-999a64b26fb9)
 
 
+TW: GLITCHING AND SOMEWHAT BRIGHT COLOURS!!!
+
+I'll give ya sometime here to move away!
 
 
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
 
 
