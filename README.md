@@ -12,8 +12,6 @@ age: Heh you don't get to know <3
 
 height: 5 something- idk dude-
 
-do i support the lgbtq and proshipping? Yes!! I do support proshipping because i am somewhat one myself.
-
 Taken?: OML YES YES YES YES YES!! ILYSM BUG!! YOU BETTER FOLLOW MY BF OR ELSE I WILL HUNT YOU DOWN!
 
 Problemtic?: Yes, me and sys are problemtic, and a bit chaotic, sorry guys-
