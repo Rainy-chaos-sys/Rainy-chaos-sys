@@ -3,7 +3,7 @@
 ![IMG_4540](https://github.com/user-attachments/assets/31acea8a-f0ed-4ec8-8da1-95a34107b125)
 
 
-HAIII THIS IS BASIC INFO ABOUT ME THE HOST OF MY SYS!
+HAIII THIS IS BASIC INFO ABOUT ME!
 
 Name: Oliver, oli (if friend), Ollie pop (if bf)
 
@@ -15,7 +15,7 @@ height: 5 something- idk dude-
 
 Taken?: OML YES YES YES YES YES!! ILYSM BUG!! YOU BETTER FOLLOW MY BF OR ELSE I WILL HUNT YOU DOWN!
 
-Problemtic?: Yes, me and sys are problemtic, and a bit chaotic, sorry guys-
+Problemtic?: Yes, me and the sys are problemtic, and a bit chaotic, sorry guys-
 
 I am transgender, demiboy, gay, and aromatic or asexual(still trying to figure this part out)!
 
