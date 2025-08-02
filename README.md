@@ -1,10 +1,10 @@
-![IMG_4538](https://github.com/user-attachments/assets/268c33d3-e6f9-43f4-a859-1e4be1c93f9d)
-![IMG_4540](https://github.com/user-attachments/assets/31acea8a-f0ed-4ec8-8da1-95a34107b125)
+![IMG_5088](https://github.com/user-attachments/assets/46394fda-239a-4cde-afc9-6c74a6b4a89f)
 
+![IMG_5073](https://github.com/user-attachments/assets/aed5aa14-782d-4c57-a26c-843ce0932e84)
 
 HAIII THIS IS BASIC INFO ABOUT ME!
 
-Name: Oliver, oli (if friend), Ollie pop (if close)
+Name: Oliver, oli (if friend), Ollie pop (if close), Itrapped (ONLY IF I SAY YOU CAN)
 
 pronouns: He/they/it/pup/bark/mew
 
@@ -19,30 +19,11 @@ Problemtic?: Yes the sys is sorta problematic but forsaken alters are mostly fro
 I am Bisexual, demisexual, aroace, polyamorous transmale, demiboy
 thanks for reading!!!
 
+![IMG_5089](https://github.com/user-attachments/assets/5c123b2e-3e46-4a16-8a75-397c8f58063b)
 
-![IMG_4539](https://github.com/user-attachments/assets/d3e98525-f430-4b94-bbc5-60fb8694cc50)
-![IMG_4537](https://github.com/user-attachments/assets/7a108140-d06f-42fc-903e-999a64b26fb9)
-
-
-TW: GLITCHING AND SOMEWHAT BRIGHT COLOURS!!!
-
-I'll give ya sometime here to move away!
-
-
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-
-
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-
-
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-
-
-
-
-
-
-![IMG_4536](https://github.com/user-attachments/assets/b9d139c6-eaa4-4faa-a546-7653bf7b73cd)
+![IMG_5078](https://github.com/user-attachments/assets/87782c08-3a4c-48bb-9a48-1f8e072a3851)
+![IMG_5075](https://github.com/user-attachments/assets/508e60ba-64ef-46f9-b695-cc59bd3d3a81)
+![IMG_5077](https://github.com/user-attachments/assets/01a59a97-62dd-418e-93d0-c80f06dd9e7f)
 
 <!--
 **Rainy-chaos-sys/Rainy-chaos-sys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
