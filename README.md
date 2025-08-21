@@ -1,41 +1,16 @@
-![IMG_5088](https://github.com/user-attachments/assets/46394fda-239a-4cde-afc9-6c74a6b4a89f)
+<img width="170" height="7000" alt="image" src="https://files.catbox.moe/qqok1l.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/j5bnp1.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/us6byj.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/28n5ni.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/i96tfz.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/5etmvt.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/ggsb7e.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/x1ft0c.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/mklx52.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/qu7ss2.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/ljf187.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/tot8ih.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/0gfquj.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/wcm37o.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/3018v6.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/pdjqsg.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/vedxe7.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/gqvry0.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/qo2ykk.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/rjcjec.jpeg" /> <img width="170" height="7000" alt="image" src="https://files.catbox.moe/znwov8.jpeg" /> <img width="170" height="7000" alt="image" src="https://i.pinimg.com/736x/b7/e1/99/b7e199fb59015da4a810e3777d0df04b.jpg" /> <img width="170" height="7000" alt="image" src="https://i.pinimg.com/736x/90/58/4e/90584ea5c470565bfb7ea911269e5efd.jpg" /> <img width="170" height="7000" alt="image" src="https://i.pinimg.com/736x/9e/71/9e/9e719ecee340bdb704779d48e1fea714.jpg" /> <img width="170" height="7000" alt="image" src="https://i.pinimg.com/736x/74/e2/57/74e2570bd6deb7b771e1aa7dd775ef21.jpg" />
 
-![IMG_5073](https://github.com/user-attachments/assets/aed5aa14-782d-4c57-a26c-843ce0932e84)
 
-HAIII THIS IS BASIC INFO ABOUT ME!
 
-Name: Oliver, oli (if friend), Ollie pop (if close), Itrapped (ONLY IF I SAY YOU CAN)
+Hello there, i wonder why you choose to be here, looking at us...Anyways! Lets move onto our bio!
 
-pronouns: He/they/it/pup/bark/mew
+Collective name{s}: Rainy/Ender/Son {If vamp}
 
-age: Heh you don't get to know <3
+Collective pronouns: He/they/it {We Preferred if you asked though..!}
 
-height: 5 something- idk dude-
+Bodily a Minor, 18+ please do nit interact unles we do first
 
-Taken: Nope! offically single again <3
+Most alters are between 16-38! Please Iwc!! They can be unpredicable!!
 
-Problemtic?: Yes the sys is sorta problematic but forsaken alters are mostly fronting right now
-
-I am Bisexual, demisexual, aroace, polyamorous transmale, demiboy
-thanks for reading!!!
-
-![IMG_5089](https://github.com/user-attachments/assets/5c123b2e-3e46-4a16-8a75-397c8f58063b)
-
-![IMG_5078](https://github.com/user-attachments/assets/87782c08-3a4c-48bb-9a48-1f8e072a3851)
-![IMG_5075](https://github.com/user-attachments/assets/508e60ba-64ef-46f9-b695-cc59bd3d3a81)
-![IMG_5077](https://github.com/user-attachments/assets/01a59a97-62dd-418e-93d0-c80f06dd9e7f)
-
-<!--
-**Rainy-chaos-sys/Rainy-chaos-sys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Info: Hosts change constanly! Currently Hikaru {TSHD} and Issac are the hosts for now.
+Up for hours on end {Chronically Online} until like 2-3am our time. Usually then dniu Vamp/Father
