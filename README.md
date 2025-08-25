@@ -4,7 +4,7 @@
 
 Hello there, i wonder why you choose to be here, looking at us...Anyways! Lets move onto our bio!
 
-Collective name{s}: Rainy/Ender/Son {If vamp}
+Collective name{s}: Rainy/Ender/Foxy bro + Micheal afton {If esther, Kai, Rylee, or Vamp}/Son {If vamp}
 
 Collective pronouns: He/they/it {We Preferred if you asked though..!}
 
