@@ -8,7 +8,7 @@ Collective name{s}: Rainy
 
 Collective pronouns: He/they/it {We Preferred if you asked though..!}
 
-Bodily a Minor, 18+ please do not interact unless we do first
+Bodily a Minor, 18+ please do not interact unless we do first, and -14 {bodily/general} just dni, we don't wanna interact w/ you, makes us hella uncomfortable and do not flirt, we have an lovely bf, he knows who he is..don't ask questions about him unless you're Esther, Nox, Vamp, Emi, or Kai, if anyone else askes, just know you won't get answers
 
 Most alters are between 16-38! Please Iwc!! They can be unpredicable!!
 
