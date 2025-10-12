@@ -21,6 +21,7 @@ Thin ice: Doubles, Wss, Mcyt fandom, forsaken fandom, Bsd fandom, calling us fic
 alters that play Ponytown: Travis {Sally face}, Sal fischer {Sally face}, Jay/Blue {Host}, Ticci Toby {CreepyPasta}, Mori {Bsd}, Badboyhalo {Dsmp}
 
 Collective skins: 'OUR BF ! , comf , dniuf ! !' | 'Switching/blurry' | 'Quackster||M/w:Malewife'
+
 We have insomnia, DID/OSDD, Anger issues, and an ED, nothing is dignosed and we again are minor, so we're unable to get one at the moment
 --🫀
 <img width="1000" height="100" alt="image" src="https://files.catbox.moe/9dm12j.png" />
