@@ -1,7 +1,7 @@
-<img width="1000" height="100" alt="image" src="https://files.catbox.moe/xwm4is.png" />
-<img width="1000" height="100" alt="image" src="https://files.catbox.moe/zw9q3l.png" />
-<img width="1000" height="100" alt="image" src="https://files.catbox.moe/43g8r7.png" />
-"Its still raining...But I did everything i was meant to do...Thats not fair.."
+<img width="735" height="414" alt="image" src="https://github.com/user-attachments/assets/3e039cc1-ff56-4272-aa3e-fb772d6423d8" />
+
+
+"ill stick with ya till the end even if something inside of me breaks"
 
 
 Collective names; Rainy, Rain, Chaos, Insomniac system, chaos system, Oliver {Host's name has changed}
@@ -18,26 +18,10 @@ Dni: Pedos, most antis, most 18+ people, -14 people, people who don't know bound
 
 Thin ice: Doubles, Wss, Mcyt fandom, forsaken fandom, Bsd fandom, calling us fictionkins, roleplay, most roblox fandoms, Tadc fandom, and Md fandom
 
-alters that play Ponytown: Travis {Sally face}, Sal fischer {Sally face}, Jay/Blue {Host}, Ticci Toby {CreepyPasta}, Mori {Bsd}, Badboyhalo {Dsmp}
 
 Collective skins: 'OUR BF ! , comf , dniuf ! !' | 'Switching/blurry' | 'Quackster||M/w:Malewife'
 
 We have insomnia, DID/OSDD, Anger issues, and an ED, nothing is dignosed and we again are minor, so we're unable to get one at the moment
 --🫀
-<img width="1000" height="100" alt="image" src="https://files.catbox.moe/9dm12j.png" />
-<img width="1000" height="100" alt="image" src="https://files.catbox.moe/tpvzli.png" />
-<img width="1000" height="100" alt="image" src="https://files.catbox.moe/6a9rv8.png" />
-<!--
-**Rainy-chaos-sys/Rainy-chaos-sys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/db2c37ae-009b-4e8f-87aa-c6bf55adada7" />
