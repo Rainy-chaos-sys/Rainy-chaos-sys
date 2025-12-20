@@ -1,27 +1,24 @@
-<img width="735" height="414" alt="image" src="https://github.com/user-attachments/assets/3e039cc1-ff56-4272-aa3e-fb772d6423d8" />
+<p align="center" ><img src="https://media1.tenor.com/m/Twl-lCp6QqoAAAAd/rain-aesthetic.gif"width="700"></p>
 
 
-" I ' ll stick with ya till the end even if something inside of me breaks "
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=100000&color=161784&center=true&width=435&lines=%E2%80%98Its..still..raining!%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=6000&pause=100000&color=161784&center=true&width=435&lines=%E2%80%98Here..have..an..umbrella%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=10000&pause=100000&color=161784&center=true&width=435&lines=%E2%80%98my..little..droplets..!%E2%80%99"/> </p>
 
+<p align="center">${\textsf{\color{#3638b6}Rainy ✧ Chaos ✧ System!~ }}$
 
-Collective names; Rainy, Rain, Chaos, Insomniac system, chaos system, Oliver {Host's name has changed}
+<p align="center">${\textsf{\color{#3a3cd0}4teen-6teen + DID/OSDD }}$
 
-Collective pronouns: They / he [ Hy / hym ] { Collectively trans }
+ <p align="center">${\textsf{\color{#4648d8} c + h  enc  ♡}}$
 
-Age: 14-17 ( 18 + dniuf - 14 heavily dni )
+ <p align="center">${\textsf{\color{#4f51e0} block freely + Iwec with fictives }}$
+ 
+ <p align="center">${\textsf{\color{#5d5fe9} Basic dni criteria + in a poly rs + read strawpage for dni n Int}}$
 
-Hobbies/likes: We like drawing, making edits, watching murder docs, and sometimes making gift skins
+ <p align="center">${\textsf{\color{#4f51e0} Ftm collective + Rainy collective + They / hy / he collective}}$
 
-Int: Kind people , other systems , close friends, Rebzyyx/McCafferty/Mother mother fans , or if ya just wanna cuddle!, theres more stuff in our strawpage !
+<p align="center">${\textsf{\color{#5d5fe9} Basic dni criteria + in a poly rs + read strawpage for dni n Int}}$
 
-Dni: Pedos , Z00s , most 18 + people, - 14 people , people who don't know boundaries , People who push boundaries , Jokes about people committing , homophobic people , anti endos , people who sent death threats , jokes about SH , age players , treating fictives as their character DO NOT DO THAT UNLESS THEY SAY TO ! Roleplays , ex friends , past drama , people looking for a romantic relationship 
+<p align="center"><img src="https://komarev.com/ghpvc/?username=rainy-chaos-sys&color=5d5fe9&style=for-the-badge&label=++++++droplets++++++&base=4274"></img></p>
 
-Thin ice: Doubles , Wss , Mcyt fandom , forsaken fandom , Bsd fandom , calling us fictionkins , most roblox fandoms , Tadc fandom , and Md fandom
-
-
-Collective skins: 'OUR BF ! , comf , dniuf ! !' | 'Switching/blurry' | 'Quackster||M/w:Malewife'
-
-We have insomnia, DID/OSDD, Anger issues, and an ED, nothing is dignosed and we again are minor, so we're unable to get one at the moment
---🫀
-
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/db2c37ae-009b-4e8f-87aa-c6bf55adada7" />
+<p align="center" ><img src="https://media1.tenor.com/m/AEisguYaZmMAAAAd/inazuma-genshin.gif"width="700"></p>
