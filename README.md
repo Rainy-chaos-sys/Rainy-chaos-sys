@@ -3,7 +3,7 @@
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=1000&color=161784&center=true&width=435&lines=%E2%80%98Its..still..raining!%E2%80%99"/> </p>
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=1000&color=161784&center=true&width=435&lines=%E2%80%98Here..have..an..umbrella%E2%80%99"/> </p>
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=1000&color=161784&center=true&width=435&lines=%E2%80%98my..little..droplets..!%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=900&color=161784&center=true&width=435&lines=%E2%80%98my..little..droplets..!%E2%80%99"/> </p>
 
 <p align="center">${\textsf{\color{#3638b6}Rainy ✧ Chaos ✧ System!~ }}$
 
