@@ -18,7 +18,29 @@
  <p align="center">${\textsf{\color{#5d5fe9} Basic dni criteria + in a poly rs + read strawpage for dni n Int}}$
 
 <p align="center">${\textsf{\color{#5d5fe9} Can be found in bsd area, or near docks, if not there, homestuck area w/ safe!}}$
+</details>
+
+<details>
+  <summary>System user boxes</summary>
+<img width="200 height="200" alt="image" src="https://files.catbox.moe/r7cj5r.jpg" /> <img width="200 height="200" alt="image" src="https://files.catbox.moe/5iomdz.jpg" /> <img width="200 height="200" alt="image" src="https://files.catbox.moe/bgdwr7.jpg" /> <img width="350 height="50000" alt="image" src="https://files.catbox.moe/gc27fx.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/xtlwxs.jpg" />
+ 
+ 
+</details>
+
+<details>
+  <summary>Alters</summary>
+
+
+</details>
+
+<details>
+  <summary>Blinkes{wip}</summary>
+
+
+
+  </details>
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=rainy-chaos-sys&color=5d5fe9&style=for-the-badge&label=++++++droplets++++++&base=4274"></img></p>
 
 <p align="center" ><img src="https://media1.tenor.com/m/AEisguYaZmMAAAAd/inazuma-genshin.gif"width="700"></p>
+
