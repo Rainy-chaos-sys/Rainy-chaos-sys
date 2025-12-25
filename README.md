@@ -28,8 +28,17 @@
 </details>
 
 <details>
-  <summary>Alters</summary>
+  <summary>Alters{At least the most active ones}</summary>
+ 
+🩹.15zai ; He / blood / gun / f*g / bullet / they / hy 
+ 
+🐏.15chuu ; He / sheep / they / hy / comp / computers / computerself
 
+🐇.Jax ; He / bun / abstract / nothing / void / panic / star
+
+📱.Seth ; He / it
+
+🫆.Jay ; They / he / hy / pup / paw / gun / blood / [riv / rivers ]  / tired / sleep {Mostly male or non-binary alligned pronouns is fine}
 
 </details>
 
