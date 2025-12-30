@@ -38,16 +38,13 @@
 
 📱.Seth ; He / it
 
-🫆.Jay ; They / he / hy / pup / paw / gun / blood / [riv / rivers ]  / tired / sleep {Mostly male or non-binary alligned pronouns is fine}
+🍎.Jay ; They / he / hy / pup / paw / gun / blood / [riv / rivers ]  / tired / sleep {Mostly male or non-binary alligned pronouns is fine}
+
+🛡️. Mike Wheeler ; He / they / sword / paldin / shield / dead / [ light / crackers / lightcrackerself ]
+
+⛓️‍💥.Will Byers ; He / they / [walkie / talkie's / walkietalkieself ] / mic
 
 </details>
-
-<details>
-  <summary>Blinkes{wip}</summary>
-
-
-
-  </details>
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=rainy-chaos-sys&color=5d5fe9&style=for-the-badge&label=++++++droplets++++++&base=4274"></img></p>
 
