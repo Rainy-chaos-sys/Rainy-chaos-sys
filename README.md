@@ -22,7 +22,7 @@
 
 <details>
   <summary>System user boxes {That we or alters relate to}</summary>
-<img width="200 height="200" alt="image" src="https://files.catbox.moe/r7cj5r.jpg" /> <img width="200 height="200" alt="image" src="https://files.catbox.moe/5iomdz.jpg" /> <img width="200 height="200" alt="image" src="https://files.catbox.moe/bgdwr7.jpg" /> <img width="350 height="50000" alt="image" src="https://files.catbox.moe/gc27fx.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/xtlwxs.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/zsf1qk.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/t2udcf.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/socn5j.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/509ugj.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/oi8oee.jpg" />
+<img width="200 height="200" alt="image" src="https://files.catbox.moe/r7cj5r.jpg" /> <img width="200 height="200" alt="image" src="https://files.catbox.moe/5iomdz.jpg" /> <img width="200 height="200" alt="image" src="https://files.catbox.moe/bgdwr7.jpg" /> <img width="350 height="50000" alt="image" src="https://files.catbox.moe/gc27fx.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/xtlwxs.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/zsf1qk.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/t2udcf.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/socn5j.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/509ugj.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/oi8oee.jpg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/olr7zg.jpeg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/vcje3t.jpeg" /> <img width="200 height="50000" alt="image" src="https://files.catbox.moe/wm61bf.jpeg" />
  
  
 </details>
@@ -33,8 +33,6 @@
 🩹.15zai ; He / blood / gun / f*g / bullet / they / hy 
  
 🐏.15chuu ; He / sheep / they / hy / comp / computers / computerself
-
-🐇.Jax ; He / bun / abstract / nothing / void / panic / star
 
 📱.Seth ; He / it
 
