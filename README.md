@@ -2,7 +2,8 @@
 
 ![Project_Name](https://github.com/user-attachments/assets/dbbb3531-bb1d-4241-9127-32fb3ff4a952)
 
-   <p align="center"> <Img src="https://readme-typing-svg.demolab.com?font=Sansita&size=20&duration=3000&pause=200&color=ffccff&background=f6b2be600&width=435&lines=Am+I+A+Robot+Or+A+Doll,+Am+I+Anything+At+All?;Maybe+A+Thing+Like+Me+Doesnt+yet+Deserve+To+Knowww~;Am+I+Big+Or+Am+I+Small?;Hunching+Over,+Standing+Tall?;I+Lost+My+Identity,+Oh,+So+Very+Long+Ago." alt="Typing SVG" />
+
+   <p align="center"> <Img src="https://readme-typing-svg.demolab.com?font=Sansita&size=20&duration=3000&pause=200&color=ffccff&background=f6b2be600&width=435&lines=My+Brother+Told+Me+Hes+gonna+kill+himself+Tonight;With+A+Whole+Bottle+Of+Prozac+Or+A+Shiny+Kitchen+Knife;He+Says+When+Hes+Dead,+I'll+Have+His+Nintendo64;And+I+Could+Play+It+All+Night+Long;Sitting+On+The+Basement+Floor+...;I+Miss+You+Dearly+Dazai+I+Wish+We+Could've-;Been+More+-Atsu+/+Atsushi." alt="Typing SVG" />
 
 <p align="center">${\textsf{\color{#cc99ff}Rainy ✧ Chaos ✧ System!~ }}$
 
