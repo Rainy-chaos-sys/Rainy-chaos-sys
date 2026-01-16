@@ -5,13 +5,13 @@
 
    <p align="center"> <Img src="https://readme-typing-svg.demolab.com?font=Sansita&size=20&duration=3000&pause=200&color=ffccff&background=f6b2be600&width=435&lines=My+Brother+Told+Me+Hes+gonna+kill+Himself+Tonight;With+A+Whole+Bottle+Of+Prozac+Or+A+Shiny+Kitchen+Knife;He+Says+When+Hes+Dead,+I'll+Have+His+Nintendo64;And+I+Could+Play+It+All+Night+Long;Sitting+On+The+Basement+Floor+...;I+Miss+You+Dearly+Dazai+I+Wish+We+Could've-;Been+More+-Atsu+/+Atsushi." alt="Typing SVG" />
 
-<p align="center">${\textsf{\color{#cc99ff}Rainy ✧ Chaos ✧ System!~ }}$
+<p align="center">${\textsf{\color{#cc99ff}The ✧ Forest ✧ Syst3m!~ }}$
 
 <p align="center">${\textsf{\color{#9999ff}4teen-6teen + DID/OSDD }}$
 
  <p align="center">${\textsf{\color{#6699ff} block freely + Iwec with fictives }}$
 
-<p align="center">${\textsf{\color{#3399ff} Ftm collective + Rainy collective + They / hy / he collective}}$
+<p align="center">${\textsf{\color{#3399ff} Ftm collective + They / hy / he collective}}$
  
  <p align="center">${\textsf{\color{#0099ff} Basic dni criteria + in a poly rs + read strawpage for dni n Int}}$
 </details>
